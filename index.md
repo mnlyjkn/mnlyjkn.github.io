@@ -11,7 +11,6 @@ Attended East Stroudsburg University for undergraduate degree from 2011 - 2015. 
 
 ---
 ### Work Experience
-<br>
 placeholder
 <br>
 Field Technician for the Great Basin Institute in Elko, Nevada from 6/2017 - 12/2017
